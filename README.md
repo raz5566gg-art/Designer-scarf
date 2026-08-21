@@ -12,3 +12,7 @@ givenchy scarves
 
 https://designerscarf.co.uk/collections/pre-owned-givenchy
 
+# Pre-Owned Nike P-6000
+
+https://www.sportsghar.com/collections/pre-owned-nike-p-6000
+
