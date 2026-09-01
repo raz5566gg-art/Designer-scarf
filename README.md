@@ -12,6 +12,9 @@ givenchy scarves
 
 https://designerscarf.co.uk/collections/pre-owned-givenchy
 
+# wool scarf
+
+https://designerscarf.co.uk/
 
 
 
